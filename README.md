@@ -1,1 +1,0 @@
-# Myopic-Developers
